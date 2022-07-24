@@ -1,5 +1,5 @@
 # Hydrax's Private DDos
-# Version 7.1
+# Version 7.1 / Leave Stars Please
 
 DISCORD LINK: https://discord.gg/Kgs7xEbGCw
 CONTACT FOR QUESTIONS: HydraX#3280                                       

@@ -4,7 +4,7 @@
 DISCORD LINK: https://discord.gg/Kgs7xEbGCw
 CONTACT FOR QUESTIONS: HydraX#3280                                       
                                               
-PASSWORD: https://pastebin.com/9C5cNLSG
+PASSWORD: https://pastebin.com/9C5cNLSG // ASK THE PASSWORD ON MY DISCORD :> OR MESSAGE ME
 
 FILE ARE TOTALLY SAFE FOR EVERYONE!
 ANY CONCERN CAN BE ASKED ON OUR DISCORD AND I'LL ANSWER QUESTION ANY BY CHANCE
